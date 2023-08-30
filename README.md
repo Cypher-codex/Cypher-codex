@@ -14,7 +14,7 @@
 
 - 📫 How to reach me **deephalder2017@outlook.com**
 
-- ⚡ Fun fact **Coding is easy 😒**
+- ⚡ Fun fact **Coding is not easy bro😒**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
